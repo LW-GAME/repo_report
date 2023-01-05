@@ -1,1 +1,1 @@
-qwq，这里是LifeWorld的资源存放地和反馈地
+qwq，这里是SDXOJ的资源存放地和反馈地
